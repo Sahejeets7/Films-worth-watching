@@ -5,7 +5,8 @@
  - Spider-Verse II
 
 ## 2022
-Top Gun: Maverick
+- Top Gun: Maverick
+- Uncharted
 
 
 ## 2020
