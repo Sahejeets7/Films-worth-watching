@@ -32,6 +32,9 @@ Southpaw
 The Lincoln lawyer
 Hacksaw Ridge
 Chef
+Spider-man: into the spider-verse
+Sherlock Holmes- a game of shadows
+
 
 
 
